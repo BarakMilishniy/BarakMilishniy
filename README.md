@@ -1,6 +1,6 @@
 - 👋 Hi, I’m BarakMilishniy
 - 👀 I’m interested in creeps
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning .kjtgrjoprg
 - 💞️ I’m looking to collaborate on ...tydhjiokpght
 - 📫 How to reach me ...tgijriref)
 - 😄 Pronouns: ...fvewf
