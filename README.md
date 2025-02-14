@@ -2,7 +2,7 @@
 - 👀 I’m interested in creeps
 - 🌱 I’m currently learning .dhgyjndtyhjydydfj
 - 💞️ I’m looking to collaborate on ...hgytguij
-- 📫 How to reach me ...nhdxghnjythjn
+- 📫 How to reach me ...vfdsbgfdtyh
 - 😄 Pronouns: ...fvewf
 - ⚡ Fun fact: yo yo 
 <!--
