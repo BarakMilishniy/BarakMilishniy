@@ -1,7 +1,7 @@
 - 👋 Hi, I’m BarakMilishniy
 - 👀 I’m interested in creeps
 - 🌱 I’m currently learning .tdshstrhsrdbg
-- 💞️ I’m looking to collaborate on ...mjiuhytresdfgh
+- 💞️ I’m looking to collaborate on ...utdfti67dresuyhyug
 - 📫 How to reach me ...vfdsbgfdtyh
 - 😄 Pronouns: ...fvewf
 - ⚡ Fun fact: yo yo 
